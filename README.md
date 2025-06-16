@@ -1,0 +1,1 @@
+# StupidGachaSims.github.io
